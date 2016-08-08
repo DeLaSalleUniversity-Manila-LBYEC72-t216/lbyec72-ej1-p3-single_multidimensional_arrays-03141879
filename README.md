@@ -6,6 +6,8 @@
 ![] (6 (1).JPG)
 ![] (7 (1).JPG)
 ![] (8 (1).jpg)
+(update for Activity 7)
+![] (act.7-16.jpg)
 ![] (9 (1).jpg)
 ![] (10 (1).jpg)
 ![] (11 (1).jpg)
