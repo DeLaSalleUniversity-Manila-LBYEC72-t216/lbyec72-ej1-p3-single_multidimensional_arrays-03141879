@@ -9,7 +9,7 @@
 
 (update for Activity 7)
 
-![] (act.7-16.jpg)
+![] (act.7-16.png)
 
 ![] (9 (1).jpg)
 ![] (10 (1).jpg)
